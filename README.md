@@ -1,1 +1,1 @@
-Ingresaremoss la información later
+Ingresaremos la información later
